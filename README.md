@@ -1,1 +1,0 @@
-Halo, Saya Rafi.
